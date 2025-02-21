@@ -1,4 +1,4 @@
-## Hey! 👋
+## About Me
 
 Growing up, I have always had an interest in computers and technology.
 
